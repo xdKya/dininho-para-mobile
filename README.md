@@ -1,0 +1,1 @@
+# dininho-para-mobile
